@@ -1,1 +1,1 @@
-# thu_Details_of_Management_Information_BII_Lesson5
+# 経営情報各論ＢⅡ　第５回講義資料
